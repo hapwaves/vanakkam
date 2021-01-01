@@ -1,2 +1,2 @@
 # vanakkam
-# puthandu nalvazhthukkal
+# iniya puthandu nalvazhthukkal
